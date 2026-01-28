@@ -1,1 +1,1 @@
-# Group-9---Project-Proposal
+# Group 9 Project Proposal
